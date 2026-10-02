@@ -22,7 +22,7 @@ Team Coordination</p>
 <h3>REAL ESTATE PRIVATE EQUITY ANALYSIS</h3>
 
 <p>Analyzed real estate investment opportunities through financial projections, property valuation, and investment return analysis.</p>
-<a href="linkedin.com/posts/project-destined_commercialrealestate-privateequityinternship-activity-7452808448611631105-Z3_Z">Click here</a>
+<a href="https://projectdestined.typeform.com/to/MvIMwzbI?typeform-source=www.google.com">Click here</a>
 
 <h3>TEXTBOOK PROCUREMENT & INVENTORY PROJECT</h3>
 
