@@ -8,3 +8,5 @@ Inventory Management     Project Management
 Data Organization        Leadership
 Communication            Team Coordination
 </p>
+<h6>PROJECTS</h6>
+<p><b>REAL ESTATE PRIVATE EQUITY ANALYSIS</b></p>
