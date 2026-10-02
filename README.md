@@ -22,7 +22,7 @@ Team Coordination</p>
 <h3>REAL ESTATE PRIVATE EQUITY ANALYSIS</h3>
 
 <p>Analyzed real estate investment opportunities through financial projections, property valuation, and investment return analysis.</p>
-<a href="https://projectdestined.typeform.com/to/MvIMwzbI?typeform-source=www.google.com">Click here</a>
+<a href="https://www.ibm.com/think/topics/supply-chain-management">Click here</a>
 
 <h3>TEXTBOOK PROCUREMENT & INVENTORY PROJECT</h3>
 
